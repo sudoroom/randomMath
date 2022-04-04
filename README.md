@@ -1,3 +1,3 @@
-# Random math other years at SudoRoom
+# Random math over the years at SudoRoom
 
 
